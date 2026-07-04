@@ -2,7 +2,7 @@
 
 ## Contact
 For any questions or issues, please contact us at:
-📧 **fridgeup.io@gmail.com**
+📧 **fridgeup.ios@gmail.com**
 
 ## Frequently Asked Questions
 
