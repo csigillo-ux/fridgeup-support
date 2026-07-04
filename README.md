@@ -2,7 +2,7 @@
 
 ## Contact
 For any questions or issues, please contact us at:
-📧 **csigillo@bluewin.ch**
+📧 **fridgeup.io@gmail.com**
 
 ## Frequently Asked Questions
 
